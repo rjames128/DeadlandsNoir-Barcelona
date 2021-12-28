@@ -1,1 +1,6 @@
-# Francoist Spain (Nationalists)
+# Nationalists
+
+## Francoism
+## Social syndicalism
+## Monoarchism(Alfonsism)
+## Carlism

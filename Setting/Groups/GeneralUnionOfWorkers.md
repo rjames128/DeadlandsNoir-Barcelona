@@ -1,1 +1,0 @@
-# General Union of Workers (UGT)
